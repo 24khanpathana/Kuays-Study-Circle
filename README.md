@@ -1,1 +1,0 @@
-# Kuays-Study-Circle
